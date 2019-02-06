@@ -1,1 +1,1 @@
-this is our odyseey
+a new generation
