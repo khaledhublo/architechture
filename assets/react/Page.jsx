@@ -1,2 +1,1 @@
-
-When we're tripping on our freedom
+a new generation
